@@ -1,10 +1,10 @@
 # File mình share thuộc dạng ngon ở thời điểm hiện tại. Treo mượt không lỗi nên hãy giữ nguyên credit giúp mình nhé. 🌸
 
-## Nhớ hãy fork (remix) đúng nguồn (@khoi0603k) tránh lỗi ✔
+## Nhớ hãy fork (remix) đúng nguồn tránh lỗi ✔
 
 ### Liên hệ mình qua:
-- Facebook🪐 : Lương Trường Khôi
-- Telegram🎶 : TrKhoi_Media
+- Facebook🪐 : Mkg hanina
+- Telegram🎶 : @qqaassdd1231
 ```
                   .----.
       .---------. | == |
